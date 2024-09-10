@@ -1,4 +1,4 @@
-Welcome to the latest issue of the United International Journal for Research & Technology (UIJRT). This issue features a diverse collection of research papers across various fields. Below is a list of all published papers for Volume 05, Issue 10, 2024.
+United International Journal for Research & Technology (UIJRT). This issue features a diverse collection of research papers across various fields. Below is a list of all published papers for Volume 05, Issue 10, 2024.
 
 ## Published Papers
 
